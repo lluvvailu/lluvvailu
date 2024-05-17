@@ -1,10 +1,10 @@
 - 👋 Hi, I’m @lluvvailu
 - 👀 I’m interested in dance
-- 🌱 I’m currently learning harry potter
+- 🌱 I’m currently learning informatica
 - 💞️ I’m looking to collaborate on idk
-- 📫 How to reach me ?
+- 📫 How to reach me ig or gmail 
 - 😄 Pronouns: she/him
-- ⚡ Fun fact: one time i fall in front all to my school
+- ⚡ Fun fact: one time i falling in front all to my school
 
 <!---
 lluvvailu/lluvvailu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
